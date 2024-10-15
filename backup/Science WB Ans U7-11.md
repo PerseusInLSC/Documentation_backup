@@ -1,0 +1,5 @@
+Unit 7: [scicent_Answers_to_assignment_U7_final_e.pdf.pdf](https://github.com/user-attachments/files/17272494/scicent_Answers_to_assignment_U7_final_e.pdf.pdf)
+Unit 8: [650751059-scicent-Answers-to-assignment-U8.pdf](https://github.com/user-attachments/files/17272531/650751059-scicent-Answers-to-assignment-U8.pdf)
+Unit 9: [scicent_Answers_to_assignment_U9_final_e.pdf.pdf](https://github.com/user-attachments/files/17272539/scicent_Answers_to_assignment_U9_final_e.pdf.pdf)
+Unit 10: [WB_U10.pdf.pdf](https://github.com/user-attachments/files/17272307/WB_U10.pdf.pdf)
+Unit 11: [scicent_Answers_to_assignment_U11_final_e.doc.pdf](https://drive.google.com/open?id=1KkwUX8i-s7r-_zFGB2aOsGdnLlpF_v7b&usp=drive_copy)
